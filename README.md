@@ -16,7 +16,7 @@ I am dedicated to advancing the field of AI and making cutting-edge AI solutions
 ## 🌐 Connect with Me
 
 - **LinkedIn:** [Anudev Manju Satheesh](https://www.linkedin.com/in/anudev-manju-satheesh-218b71175/)
-- **YouTube:** [AI Insights with Anudev](https://www.youtube.com/@intelligence_af)
+- **YouTube:** [Intelligence_af](https://www.youtube.com/@intelligence_af)
 
 ## 🎥 YouTube Channel
 
